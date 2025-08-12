@@ -4,9 +4,9 @@
 
 ## 🎨 About Me
 
-Hi there! I'm **Coenraad671**, a passionate NFT fan and digital art enthusiast.  
-As an active creator in the NFT space, I've launched several projects related to NFTs, expanding both my creative and technical skills. I enjoy collecting famous and unique NFT pieces from top collections, exploring the latest trends in the metaverse, and building connections with fellow NFT lovers around the globe.  
-Whether it's discovering rare art, developing blockchain-based projects, or sharing knowledge within the NFT community—I'm always excited to contribute and grow in this revolutionary space!
+Hi there! I'm **Coenraad671**, a passionate **NFT fan** and digital art enthusiast.  
+As an active **creator** in the NFT space, I've launched several **projects related to NFTs**, expanding both my creative and technical skills. I enjoy **collecting famous and unique NFT pieces** from top collections, exploring the latest trends in the **metaverse**, and building connections with fellow NFT lovers around the globe.  
+Whether it's **discovering rare art**, **developing blockchain-based projects**, or **sharing knowledge** within the NFT community—I'm always excited to contribute and grow in this **revolutionary** space!
 
 ---
 

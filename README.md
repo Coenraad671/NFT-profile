@@ -23,24 +23,10 @@ Hi there! I'm **Coenraad671**, an NFT enthusiast who loves discovering, collecti
 
 ---
 
-## 🔥 Current Favorite NFTs
-
-### Doodles
-![Doodles](https://assets.coingeek.com/wp-content/uploads/2022/02/doodles-nft.png)
-
-### Bored Ape Yacht Club
-![Bored Ape Yacht Club](https://media.giphy.com/media/nxIrYwW8lCqkW2uVdF/giphy.gif)
-
-### Azuki
-![Azuki](https://azuki.com/static/opengraph-2.0.png)
-
----
-
 ## 📫 Connect with Me
 
-- 🐦 [Twitter](https://twitter.com/) (DMs open for NFT chat!)
-- 💬 [Discord](#) (Ask me for my handle)
-- 🌐 [My NFT Blog](#) (Coming soon!)
+- 💬 **Telegram:** [@Christian4978](https://t.me/YourTelegramHandle)
+- 💬 **Discord:** YourDiscordUsername#1234
 
 ---
 

@@ -26,7 +26,7 @@ Hi there! I'm **Coenraad671**, an NFT enthusiast who loves discovering, collecti
 ## 📫 Connect with Me
 
 - 💬 **Telegram:** [@Christian4978](https://t.me/Christian4978)
-- 💬 **Discord:** YourDiscordUsername#1234
+- 💬 **Discord:** @aime0999
 
 ---
 

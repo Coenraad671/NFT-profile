@@ -28,13 +28,6 @@ Whether it's **discovering rare art**, **developing blockchain-based projects**,
 
 ---
 
-## 📫 Connect with Me
-
-- 💬 **Telegram:** [@Christian4978](https://t.me/Christian4978)
-- 💬 **Discord:** @aime0999
-
----
-
 ## 🦄 Fun Fact
 
 > "NFTs are not just art, they're a movement!"

@@ -1,10 +1,5 @@
 # 👾 Welcome to my Profile! 👾
 
-# Please follow the repository of getting shiny badges at no cost!"
-# https://github.com/Coenraad671/How-to-get-Github-Achievement-Badges #
-
-![NFT Banner](https://mir-s3-cdn-cf.behance.net/project_modules/1400/2b8b1a118999741.6077a8a8e47a9.gif)
-
 ## 🎨 About Me
 
 Hi there! I'm **Coenraad671**, a passionate **NFT fan** and digital art enthusiast.  
